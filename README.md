@@ -1,1 +1,1 @@
-	wanyi0204.github.io
+wanyi0204.github.io
